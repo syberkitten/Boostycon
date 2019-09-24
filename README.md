@@ -9,23 +9,23 @@ and that you are accepted.
 
 Without further a due, the Boostycon,
 
-* Boostya (spelled boost-ya)
+## Boostya (spelled boost-ya)
 - A working place (a boost) where people work their asses off
 - Also denotes a sketchy / dubious working place, where the morals are low
 - Also denotes an esteemed working place where people have their noses "up"
 
-** Baboostya
+# Baboostya
 Can mean different things based on context, for example:
 ```Shalom Baboostya -> hello to you the one who is working in the Boostya```
 
-** Boost
+# Boost
 - A way to address a respected member of your Boostya
 
-** Boosties (Boosty)
+# Boosties (Boosty)
 - One who is in the Boost 
 - One who is accepted into the boost circle
 
-** Miboost Leboost Yaboost
+# Miboost Leboost Yaboost
 - a saying which says, what comes around goes around in a boosty fashion
 
 
