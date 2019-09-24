@@ -2,7 +2,7 @@
 
 The Boostya is a humorous and ambigous (self-referencing) dialect  used to facilitate interaction between
 collegues in high tech industries and in tight work environments where
-are not enough words exist (or available to the Boosties) to express certain emotions / hierarchies and foolisheness.
+not enough words exist (or available to the Boosties) to express certain emotions / hierarchies and foolisheness.
 
 Being a "boosty" means that you've been initiated into the dialect circle 
 and that you are accepted.
