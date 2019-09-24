@@ -33,6 +33,7 @@ Can mean different things based on context, for example:
 - a small filsdiputen of merde
 - one who's point is empty
 - a dumb ass
+- One who's stupidity is his skill
 
 ## A small Filsdiputen of Merde
 - a kind of a hodrikan
@@ -41,5 +42,7 @@ Can mean different things based on context, for example:
 ## little Filsdiputen of Merde
 - smaller then small, but still hodrikan
 
-## Livtsoyan (spelled: live-tso-an)
+## Livtsoan (spelled: live-tso-an)
 - a living creature that yields feces
+- Livtsoan can mutate or evolve to be an Hodrikan
+- Hodrikan is also a kind of a an evolved Livtsoan
