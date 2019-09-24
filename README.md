@@ -29,3 +29,7 @@ Can mean different things based on context, for example:
 - a saying which says, what comes around goes around in a boosty fashion
 
 
+## Hodrikan
+- a small filsdiputen of merde
+- one who's point is empty
+- a dumb ass
