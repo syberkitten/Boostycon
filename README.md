@@ -33,3 +33,11 @@ Can mean different things based on context, for example:
 - a small filsdiputen of merde
 - one who's point is empty
 - a dumb ass
+
+## A small Filsdiputen of Merde
+- a kind of a hodrikan
+- a tiny little something of ...
+
+## little Filsdiputen of Merde
+- smaller then small, but still hodrikan
+
