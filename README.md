@@ -41,3 +41,5 @@ Can mean different things based on context, for example:
 ## little Filsdiputen of Merde
 - smaller then small, but still hodrikan
 
+## Livtsoyan (spelled: live-tso-an)
+- a living creature that yields feces
