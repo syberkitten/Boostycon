@@ -39,10 +39,16 @@ Can mean different things based on context, for example:
 - a kind of a hodrikan
 - a tiny little something of ...
 
-## little Filsdiputen of Merde
+## little Filsdiputen of ... (Merde)
 - smaller then small, but still hodrikan
+- literally, a little son-of-a-bitch of ...
 
 ## Livtsoan (spelled: live-tso-an)
 - a living creature that yields feces
 - Livtsoan can mutate or evolve to be an Hodrikan
 - Hodrikan is also a kind of a an evolved Livtsoan
+
+## Hodgayan (spelled Hod-gay-an)
+- an opinionated Hodrikan
+- One who estemes himself as being smart or genius (ass)
+
